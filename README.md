@@ -1,5 +1,9 @@
-## Hi there 👋
-
+#Helios Meta
+for you found the code, found your abyss.
+but it's laughable, the King didnt get to his chromatic finale.
+solve this. 
+OEEZSV, UR ILHMY AWYTX. ROBV DSWDXW TRL RZBWUMFEE, LZPV KGDXA OM QJ ZSKBIVT, FIE, QHK ZSPHLVP VSSD XAE LRO WT QAYK EAICVOD MFRSZ SQ AIXRIKIUK.
+find the password for this cipher, for it lies in plain sight.
 <!--
 **HeliosMeta/HeliosMeta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
